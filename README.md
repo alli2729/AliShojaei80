@@ -1,5 +1,13 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+I'm intersted in to learn and make money😁😁.
+
+android developing so cool.
+
+i need learn more to make good life😉😉.
+
+sooooooo i must lean moreeeeeeee.
+
+                                                                         🥸     🖥️     🤓
 
 
 # 💻 Tech Stack:
