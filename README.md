@@ -7,7 +7,7 @@ i need learn more to make good life😉😉.
 
 sooooooo i must lean moreeeeeeee.
 
-                                                                         🥸     🖥️     🤓
+🥸     🖥️     🤓          
 
 
 # 💻 Tech Stack:
