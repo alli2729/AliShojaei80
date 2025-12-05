@@ -5,7 +5,7 @@ android developing so cool.
 
 i need learn more to make good life😉😉.
 
-sooooooo i must lean moreeeeeeee.
+sooooooo i must learn moreeeeeeee.
 
 🥸     🖥️     🤓          
 
